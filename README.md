@@ -6,7 +6,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=MR-IMRAN-404&label=Profile%20views&color=0e75b6&style=flat" alt="MR-IMRAN-404" /> </p>
 
-- 👨‍💻 All of my projects are available at [https://linktr.ee/simplified_learner](https://linktr.ee/simplified_learner)
+- 👨‍💻 CONNECT WITH ME FACEBOOK [https://www.facebook.com/Imran.Ahmed099]
 
 - ⚡ Fun fact **I am funny😅**
 
